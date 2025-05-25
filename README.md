@@ -1,1 +1,0 @@
-# hafta12-pc-ag
